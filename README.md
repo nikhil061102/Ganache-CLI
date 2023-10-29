@@ -14,6 +14,4 @@
 
 [4](https://www.youtube.com/watch?v=JTOXq8D7Nok)
 
-[5](https://www.youtube.com/watch?v=oBqS37ffNjE)
-
-[6](https://www.youtube.com/watch?v=BWslsP6E7XA)
+[5](https://www.youtube.com/watch?v=BWslsP6E7XA)
